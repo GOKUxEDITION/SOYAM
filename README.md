@@ -1,4 +1,4 @@
-# LIGITxMUSIC
+# 𝙎𝙤𝙮𝙖𝙢
 POWERFUL MUSIC BOT
 
 ━━━━━━━━━━━━━━━━━━━━
@@ -8,7 +8,7 @@ POWERFUL MUSIC BOT
 </h2>
 
 <p align="center">
-  <img src="https://te.legra.ph/file/1f070ea3147e2a3ef44e4.jpg">
+  <img src="https://deposit.pictures/p/2a1f5854ea8b4541bffef79130055fb9">
 </p>
 
 _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ʟɪɢɪᴛ ✘ ᴍᴜsɪᴄ](https://t.me/LIGITMUSIC_ROBOT)**_
@@ -26,7 +26,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ʟɪɢɪᴛ ✘ ᴍ
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
-  <img src="https://te.legra.ph/file/693f4add2a4ae3fc95df9.jpg">
+  <img src="https://deposit.pictures/p/2a1f5854ea8b4541bffef79130055fb9">
 </p>
 
 <p align="center">
